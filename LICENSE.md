@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure ftx trading bot Plugin | auto-leverage + trailing-stop, the #1 ftx trading bot. Includes auto-leverage and trailing-stop for a smoother and more
 
 
 
